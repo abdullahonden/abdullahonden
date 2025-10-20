@@ -1,5 +1,5 @@
 👋 Hey, I’m @abdullahonden
-Assistant Profesor at Yalova University and Founder of Fabrikod
+Assistant Profesor at Istanbul University and Founder of Fabrikod
 
 🌱 Developing new technologies, teaching to next generation
 
